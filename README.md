@@ -7,8 +7,9 @@
 
 <img width="340" height="40" alt="1000000176" src="https://github.com/user-attachments/assets/d9c1c25c-4d99-409f-ba64-03b5eb92a3c0" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Slackside+One&pause=1000&color=F7B0E2&multiline=true&width=435&lines=gotta+outperform+all+of+ya;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E2%98%85++)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Slackside+One&pause=1000&color=F7CBED&width=435&lines=%E3%80%80%E3%80%80%E3%80%80%E3%80%80gotta+outperform+all+of+ya!)](https://git.io/typing-svg)
 
+.　　　　   me and my jenson era apt
 
 
 
@@ -27,6 +28,7 @@
 
 
 <img width="340" height="40" alt="1000000176" src="https://github.com/user-attachments/assets/d9c1c25c-4d99-409f-ba64-03b5eb92a3c0" />
+　　　　　　　　　　　　
 <img width="69" height="51" alt="1000005697" src="https://github.com/user-attachments/assets/4e09f90e-909d-4f23-97d8-e16478108e49" />  ← @𝓑𝒆𝙖nelli <img width="20" height="20" alt="1000005701" src="https://github.com/user-attachments/assets/2b9320dc-5b45-4fdb-ba90-7718718eda8e" />
 
 
