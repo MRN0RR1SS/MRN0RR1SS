@@ -1,3 +1,10 @@
+<img width="734" height="234" alt="1000000188" src="https://github.com/user-attachments/assets/9d155332-239f-4592-9515-d3e88355b3f9" />
+
+
+
+
+ ![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓚𝖎n𝑑𝙚re𝒈gs+++_&style=plastic)  
+
 <img width="340" height="40" alt="1000000176" src="https://github.com/user-attachments/assets/d9c1c25c-4d99-409f-ba64-03b5eb92a3c0" />
 
 
@@ -6,10 +13,10 @@
 
 
 
-　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓚𝖎n𝑑𝙚re𝒈gs+++_&style=plastic)  
+　　　
 ------
 　　　　　　　[𝓢t𝖗𝘢w𝒑𝓪ge](rmking) 
-　　　　　　　　　　　　　　          　　　　　　　　　  　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)      ★___________       
+　　　　　　　　　　　　　　          　　　　　　　　　  　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)      ★___________  readme wip     
 
 
 <img width="460" height="240" alt="1000000187" src="https://github.com/user-attachments/assets/d7cb2dfb-7f81-4cc1-a366-e4addae2d27c" />
