@@ -7,7 +7,7 @@
 
 <img width="340" height="40" alt="1000000176" src="https://github.com/user-attachments/assets/d9c1c25c-4d99-409f-ba64-03b5eb92a3c0" />
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Slackside+One&pause=1000&color=F7B0E2&multiline=true&width=435&lines=gotta+outperform+all+of+ya;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E2%98%85++)](https://git.io/typing-svg)
 
 
 
@@ -21,8 +21,7 @@
 
 <img width="460" height="240" alt="1000000187" src="https://github.com/user-attachments/assets/d7cb2dfb-7f81-4cc1-a366-e4addae2d27c" />
 
-
-
+　　　　　　　　　　　　　　　　　　　
 
 --------
 
