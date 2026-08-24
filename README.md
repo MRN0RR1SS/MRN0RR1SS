@@ -8,10 +8,10 @@
 　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓚𝖎n𝑑𝙚re𝒈gs+++_&style=plastic)  
 ------
 　　　　　　　[𝓢t𝖗𝘢w𝒑𝓪ge](rmking) 
-　　　　　　　　　　　　　　          　　　　　　　　　  　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)      ♡___________       
+　　　　　　　　　　　　　　          　　　　　　　　　  　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)      ★___________       
 
 
-<img width="540" height="540" alt="1000000790" src="https://github.com/user-attachments/assets/a10ad5ae-55bf-44f1-8c2a-7a6eef9e58a6" />
+<img width="660" height="343" alt="1000000171" src="https://github.com/user-attachments/assets/9ab6dd15-fb2b-431e-9207-88bdce2b10bc" />
 
 
 
