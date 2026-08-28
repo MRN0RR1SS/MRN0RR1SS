@@ -13,7 +13,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Great+Vibes&pause=1000&color=FFFFFF&width=456&lines=%E3%80%80%E3%80%80%E3%80%80did+you+fall+from+heaven%3F+)](https://git.io/typing-svg)
 
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Great+Vibes&pause=1000&color=FFFFFF&width=456&lines=%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80+%E3%80%80%E3%80%80%E3%80%80%E3%80%80he+looks+so+angelic)](https://git.io/typing-svg)
 
 　　　
 ------
