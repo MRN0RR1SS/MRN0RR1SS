@@ -22,7 +22,7 @@
 
 
 <img width="2936" height="1731" alt="1000000261" src="https://github.com/user-attachments/assets/85188b97-463f-4fb3-859a-5e488f26262f" />
-
+.　　　　　　𝑰ns𝗽o 𝓘s @kimnson
 
 　　　　　　　　　　　　　　　　　　　
 
