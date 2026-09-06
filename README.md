@@ -19,8 +19,8 @@
 
 
 <img width="640" height="321" alt="1000000413" src="https://github.com/user-attachments/assets/8d2ca953-6b05-4681-a095-79b47a3944c0" />
-
-　　　　　　　　　　　　　　　　　
+　　　　　　　　　　　　　　　
+.　　　　　　 nominate me as pt's rookie gr63 thanks mateys! — the 2019 rookie　　　　　　　　　　　　　　　　
 
 --------
 
